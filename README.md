@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @limdaehyeon
+- 👋 Hi, I’m @JMA
 - 👀 I’m interested in FORUMULA1, Japan, Earthquake.
 - 🌱 I’m currently majoring Mechanical Engineering
 - 💞️ I’m looking to collaborate on nothing! yet...
