@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JMA
-- 👀 I’m interested in FORUMULA1, Japan, Earthquake.
-- 🌱 I’m currently majoring Mechanical Engineering
+- 👀 I’m interested in iro iro.
+- 🌱 I’m BAKA!
 - 💞️ I’m looking to collaborate on nothing! yet...
 - 📫 How to reach me >>> limdh0304@naver.com <<<
 
